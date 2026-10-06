@@ -239,4 +239,4 @@ Delta Force is available as a full free version with all features and updates in
 Don't wait any longer! Download Delta Force now and experience the action-packed world of tactical warfare for free!
 
 ---
-**Last updated:** 2026-10-06 11:41:06 UTC
+**Last updated:** 2026-10-06 17:46:20 UTC
